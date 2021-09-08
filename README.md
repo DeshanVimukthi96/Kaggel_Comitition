@@ -1,1 +1,1 @@
-# Kaggel_Comitition
+# Kaggel_Compitition
